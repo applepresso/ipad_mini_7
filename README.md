@@ -1,0 +1,1 @@
+# ipad_mini_7
